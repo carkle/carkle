@@ -3,7 +3,6 @@
 <p>Raccoons are cool n shjiz</br>
 Ill make repos public when I feel like it</p>
 
-<p>discord: carlwithak</br>
 steam: https://steamcommunity.com/id/The_Raccoon_King/</p>
 
 observe this goober ⚠️
